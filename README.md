@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me on my gmail
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: sab moh maya hai
 
 <!---
 ShivangDhamor/ShivangDhamor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
